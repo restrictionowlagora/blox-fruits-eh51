@@ -1,4 +1,4 @@
-
+Download updated blox fruits Script for blox fruits, the best script available, featuring auto-heal and auto-farm. This powerful tool ensures you have the upper hand in every
 
 
 
